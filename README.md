@@ -1,1 +1,1 @@
-# afghani
+# traitor
